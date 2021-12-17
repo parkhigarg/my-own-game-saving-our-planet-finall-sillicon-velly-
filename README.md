@@ -1,1 +1,1 @@
-# my-own-game-saving-our-planet-finall-sillicon-velly-
+# project-38-INFINTE-RUNNER-GAME
